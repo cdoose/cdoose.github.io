@@ -1,2 +1,2 @@
 # Lieblingscharakter Lieblingsmensch
-Der Charcater des Lieblingsmensches ist vielfältig!
+Der Charcater ist vielfältig 
