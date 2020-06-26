@@ -7,6 +7,6 @@ Dieser Charcater ist wird beschrieben
 Zitat aus dem Song Lieblingsmensch
 > Hallo Lieblingsmensch
 > Ein riesen Kompliment
-> Dafür, dass Du mich so gut kennst
-> Bei Dir kann ich ich sein, verträumt und verrückt sein
+> DafÃ¼r, dass Du mich so gut kennst
+> Bei Dir kann ich ich sein, vertrÃ¤umt und verrÃ¼ckt sein
 > Na na na na na na
